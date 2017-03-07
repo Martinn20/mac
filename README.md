@@ -1,0 +1,1 @@
+# mac Ova se glupostiii
